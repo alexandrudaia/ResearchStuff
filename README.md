@@ -1,1 +1,2 @@
 # ResearchStuff
+https://www.researchgate.net/publication/342199616_New_Trends_in_Sustainable_Business_and_Consumption_Clustering_analysis_on_news_from_health_OSINT_data_regarding_CORONAVIRUS-COVID_19
